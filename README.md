@@ -1,4 +1,9 @@
-# deux-betes
+# deux-betes 
+# apocalypse
+# betes
+# prophetie
+# Beast 
+# prophecy
 un essai sur le livre apocalypse ,   an essay on the apocalypse book.
 
 
