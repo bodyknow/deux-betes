@@ -262,6 +262,30 @@ Pas par le tonnerre, mais par la vérité murmurée.
 
 
 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+ENglish Version
+
+
+
+
+
                                                                         Chapter I – The First Beast
 
 And I saw a beast rise from the sea, with seven heads, dressed in dark suits, seated on thrones of glass and steel. It spoke of unity, but lived only for domination. It was born from the ruins of a world war, conceived by fear and the atom. It was called “the Seven,” and each head bore the name of a wealthy kingdom: America, Canada, England, France, Germany, Italy, Japan.
